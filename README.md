@@ -1,5 +1,4 @@
-yousefzare _
-maktab 52 , python _
+yousefzare 
 How to reach me :
 email : yousef.zare2000@gmail.com /
 phone : +989199910624 /
